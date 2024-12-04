@@ -1,1 +1,0 @@
-# e2020-tornaklub
